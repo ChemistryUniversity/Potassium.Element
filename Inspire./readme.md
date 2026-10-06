@@ -1,2 +1,5 @@
 - [How I Mass Produced Potassium Metal In The Backyard](https://youtu.be/FPjpXiZ1rSY)
 - [Highly Reactive Potassium Metal Production](https://youtu.be/7fgWKSeGOoo)
+
+# Search:
+https://m.youtube.com/results?search_query=making+pure+potassium
